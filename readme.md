@@ -7,4 +7,4 @@ editar mais uma vesz essa merda
 até um café vale porra
 
 teste teste teste
-www.wowhead.coq yuwhruyqwehruqwerqm
+www.wowhead.com
